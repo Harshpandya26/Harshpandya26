@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Harshpandya26
-- 👀 I’m interested in Data Science and Business analytics
-- 🌱 I’m currently looking for the new opportunity 
 - 📫 How to reach me harshpandya.brd@gmail.com 
 - ✨ www.linkedin.com/in/harsh-pandya-2604
 -  E-portfolio: - https://eportfolio.mygreatlearning.com/harsh-alkesh-pandya
